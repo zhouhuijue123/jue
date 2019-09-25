@@ -1,23 +1,23 @@
-# 视频平台回家页
+# 大象先生平台回家页
 本页专人更新，随时获得视频最新下载地址！<br>
 防止因为老域名屏蔽无法下载最新平台app，方便大家回家！<br>
 请立刻收藏保存本页！！<br>
 最新的平台回家页面  最新的平台回家页面https://github.zhouhuijue123/jue.com/       <br>
 
 # 最新苹果安卓下载地址2019年8月29日更新
-### [x24gae.cn](http://x24gae.com )
-### [x24gae.com](http://x24gae.com )
-### [x24gae.com](http://x24gae.com)<br>
+### [x24gae.cn](http://x24gae.cn )
+### [x24gae.cn](http://x24gae.cn )
+### [x24gae.cn](http://x24gae.cn)<br>
 备用下载地址如下<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
-x24gae.com<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
+x24gae.cn<br>
 
 
 

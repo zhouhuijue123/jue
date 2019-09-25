@@ -5,19 +5,19 @@
 最新的平台回家页面  最新的平台回家页面https://github.zhouhuijue123/jue.com/       <br>
 
 # 最新苹果安卓下载地址2019年8月29日更新
-### [baidu.com](http://baidu.com )
-### [baidu.com](http://baidu.com )
-### [baidu.com](http://baidu.com)<br>
+### [x24gae.cn](http://x24gae.com )
+### [x24gae.com](http://x24gae.com )
+### [x24gae.com](http://x24gae.com)<br>
 备用下载地址如下<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
-baidu.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
+x24gae.com<br>
 
 
 

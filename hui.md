@@ -5,19 +5,15 @@ Please save this page immediately!<br>
 Latest platform home page latest platform home page https://github.com/zhouhuijue123/jue/blob/master/hui.md      <br>
 
 # Latest Apple Android download address updated August 29, 2019
-### [x24gae.cn](http://x24gae.cn )
-### [x24gae.cn](http://x24gae.cn )
-### [x24gae.cn](http://x24gae.cn)<br>
+### [x24gae.cn](http://da66.xyz )
+### [x24gae.cn](http://da666.xyz )
+### [x24gae.cn](http://dx123.xyz)<br>
 The alternate download address is as follows<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
-x24gae.cn<br>
+da66.xyz<br>
+da666.xyz<br>
+dx123.xyz<br>
+dx456.xyz<br>
+dx789.xyz<br>
 
 
 
